@@ -70,7 +70,7 @@ Falkland Islands (Malvinas)
 Faroe Islands
 Fiji
 Finland
-France
+France 
 France, Metropolitan
 French Guiana
 French Polynesia
